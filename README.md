@@ -1,1 +1,1 @@
-https://insaints.github.io/rsschool-cv/cv
+https://insaints.github.io/rsschool-cv/
