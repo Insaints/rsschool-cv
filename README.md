@@ -1,1 +1,1 @@
-# rsschool-cv
+https://insaints.github.io/rsschool-cv/
